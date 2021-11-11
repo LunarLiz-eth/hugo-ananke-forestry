@@ -1,13 +1,15 @@
 ---
-title: Contact
-featured_image: images/notebook.jpg
+title: Schedule a Reading!
+featured_image: "/images/untitled-design-3.png"
 omit_header_text: true
-description: We'd love to hear from you
+description: Are you ready to learn more?
 type: page
 menu:
   main: {}
 
 ---
+Hey there, I am Liz, and thank you so much for your interest and for visiting my page! I have been studying Astrology since 2018 and have a passion for sharing the basics with beginners. Interested in taking your Astrology knowledge further? Check out my list of offerings and schedule a reading today!
+
 <form id="fs-frm" name="simple-contact-form" accept-charset="utf-8" action="[https://formspree.io/f/](https://formspree.io/f/ "https://formspree.io/f/"){form_id}" method="post">
 
   <fieldset id="fs-frm-inputs">
