@@ -1,86 +1,81 @@
 ---
-date: 2017-04-12T11:14:48-04:00
-description: "Master Jacques Coppenole"
-featured_image: ""
-tags: ["scene"]
-title: "Chapter IV: Master Jacques Coppenole"
+date: 2021-10-01T18:25:51+00:00
+description: ''
+featured_image: "/images/octoberblog.png"
+tags:
+- scene
+title: 'October 2021 Astrology '
+
 ---
-While the pensioner of Ghent and his eminence were exchanging very low
-bows and a few words in voices still lower, a man of lofty stature, with a
-large face and broad shoulders, presented himself, in order to enter
-abreast with Guillaume Rym; one would have pronounced him a bull-dog by
-the side of a fox. His felt doublet and leather jerkin made a spot on the
-velvet and silk which surrounded him. Presuming that he was some groom who
-had stolen in, the usher stopped him.
+After a couple of month’s off I am back with a bigger and better look at the Astrology and themes for the month!
 
-“Hold, my friend, you cannot pass!”
+October is going to be powerful! Expect big, surprising changes in yourself, your day to day relationships with EVERYTHING, as well as how you see the world and your place in it.
 
-The man in the leather jerkin shouldered him aside.
+**Monday October 4-Sunday October 10  
+Sun in Libra 11*-17* Moon moves from Virgo – Sagittarius  
+**This week, we are coming into integrity with our new relationship with ourselves. We have known for a while now that the way we have been treating ourselves on the inside must change, and we have been exploring over the past 10 days (if not longer) what this new way of treating ourselves looks like, by the end of the week we will be actualizing its implementation.   
+**Monday** **(4/11*/Virgo)** with the moon in Virgo we are making the final adjustments to this new relationship to self, checking every detail. We will need all of this in place so the changes we make in our outer world relationships are true to this new inner relationship.  
+**Tuesday** **(5/12*/Libra)** the moon moves into Libra, building to the powerful New Moon on Wednesday. Moon trines Saturn in the evening green lighting your commitments to self for the New Moon, which apexes the next morning around 7am.  
+**Wednesday** **(6/13*/NM Libra)** should feel like a powerful game changer, with Mars conjuncting the New Moon and with Mercury retro very close by. The ego and the mind are both ready to take on the world with this new sense of self, and we are being asked to stay open to new solutions to old problems as we are pushed forward. The forward momentum and ending of the old is further emphasized today by Pluto stationing direct at 24* of Capricorn. (This point is very important next year so be aware of where it is in your chart and pay attention to it’s themes. You will be rebuilding this area with all of the personal planets in 2022. Stay tuned!) Moon trines Jupiter in the evening making this the perfect time to begin your outer world interactions from this new inner perspective. You may be feeling able to make peace with those you’ve distanced yourself from over the past year.  
+**Thursday (7/14*Libra/Scorpio)** Keep your head down today as everyone is feeling out their new adjustments with themselves and what that means for the world. Moon in Libra squares Pluto and later in Scorpio, squares Saturn, making authority figures more difficult to please. Wait for the sextile at the end of the week to make any amends necessary.   
+**Friday** **(8/15*/Scorpio)** the Sun conjuncts Mars at 15* Libra brings a creative confidence boost, and Moon opposite Uranus offers new solutions to deal with yesterday’s bullies.  
+**Saturday** **(9/16*/Scorpio/Sagittarius)**Moon in Scorpio sextiles Pluto, and later in Sagittarius sextiles Saturn and also conjuncts Venus , all helping us emotionally open up to our new inner relationship we committed to on Wednesday and allowing us to heal old wounds with others.  
+**Sunday (9/17*Sagittarius)** Moon sextiles Mercury, Mars, and the Sun, bringing the emotional support we need to face the old world with new skin.  
+**Major Aspect Pattern of the Week:** _The Kite  
+ _A beneficial triangle created by __Chiron in Aries at 10*__ sextiling both **Saturn in Aquarius at 6*,** and __Black Moon Lillith in Gemini at 9*__, with Saturn in trine- this beneficial learning triangle indicates a talent that is ready to be developed, and in this case it is the ability to heal an old wound. At the tail of this kite is __Mars in Libra at 15*__, joined by the Sun on Friday, which creates an opposition to Chiron retrograde in Aries, and is the work required to ultimately heal a deep wound that has kept you from manifesting this new relationship with yourself in the past.
 
-“What does this knave want with me?” said he, in stentorian tones, which
-rendered the entire hall attentive to this strange colloquy. “Don’t you
-see that I am one of them?”
+![](https://lizsalternc.files.wordpress.com/2021/10/kiteoctober2021.png?w=700 =700x700)
 
-“Your name?” demanded the usher.
+**Monday October 11- Sunday October 17  
+ Sun in Libra 18*- 24* Moon Moves from Sagittarius to Pisces**   
+This week you begin to take action based on your new relationship with yourself. You will start to see relationship changes in the outer world, people and groups you were once attracted to may no longer feel correct. Keep in touch with your feelings to navigate to where you belong now, stay aware of how your mind may be sabotaging you back into the old story.  
+**Monday(11/18*/Sagitarrius)** Moon in Sag sextiles Jupiter bringing a bright and jovial nature to the day. The Moon moves into Capricorn in the afternoon and won’t make another aspect with the major planets until tomorrow morning. This is a great time to take care of important tasks that reflect your new commitments to self.**  
+Tuesday (12/19*/Capricorn)** With the Moon in Capricorn you may be feeling more resolute today about the changes you have been making. Squares to Chiron in Aries, Mercury, Mars and the Sun suggest to tread carefully in all relations as the planets in Libra require a softer hand and may offend more easily. Moon sextiles Neptune overnight (1:11 am EST) inviting new dreams and goals for the future to arise.  
+**Wednesday (13/20*/Capricorn)** The Moon conjuncts Pluto signaling an emotional transformation. Respond to yourself in the new way. Protect your feelings and hold your new tone. Moon moves into Aquarius in the afternoon.  
+**Thursday (14/21*/Aquarius)**The Moon conjuncts Saturn, helping you to emotionally commit yourself. A sextile to Venus in Sag and Chiron Aries with a Square to Uranus in the afternoon will help you to open up to new creative ideas that will help pave the way forward.  
+**Friday (15/22*/Aquarius)** the Moon joins Jupiter and trines the Sun and Mars in Libra, favoring bold and brave action in just causes. No major aspects after 8:30 AM EST until Saturday Afternoon, making this a great time to face challenges with ease or try something new.  
+**Saturday (16/23*/Pisces)** Moon in Pisces Squares Venus and Sextiles Uranus, new awareness may arise on something else you need to let go of in order to move forward. **Sunday (17/24*/Pisces)** Sun square Pluto , Moon Conjunct Neptune, facing off against any bullies today will result in deep emotional satisfaction.  
+**Major Aspect Pattern of the Week:** _The Cradle  
+_Like the kite pattern from last week, the Cradle also has 5 blue lines and one red. In this case the red line is acting as a barrier to the container of the cradle, representing territory that remains unexplored. The edges of our cradle this week are **Chiron Retrograde at 10*of Aries** and **Mercury Retrograde which moves from 14*-11* of Libra**. This is an important axis for us now that we have turned over our new leaf on life. Our interactions with others will be our secure place for seeing the reflection of who we have become over this past year. Our support team at the base of the cradle are **Venus in Sagittarius moving from 4*-8* and Saturn, now Direct, at 6* Aquarius.** The new vibe we have committed to on the inside (Saturn) is helping us open up to the new life direction (Venus). Take a look at how this pattern shows up in your own natal chart. Depending on the direction of your cradle, you may feel ultra supported by your surrounding environment (base on bottom of chart), needing more support from others (right side of chart), feeling overly ambitious (base at the top), or needing to be alone to rely on your inner resources (left side).
 
-“Jacques Coppenole.”
+![](https://lizsalternc.files.wordpress.com/2021/10/cradlepattern10-15.png?w=700 =700x700)
 
-“Your titles?”
+**Monday October 18-Sunday October 24  
+Sun in Libra 25* -Scorpio 1* Moon moves from Aries to Gemini**   
+Break out the dramamine and hold on to your seat, this week brings strong forward movement with 2 planets going direct and a Full Moon, but some caution flags throughout the week may have you hitting the breaks.   
+**Monday (18/ 25*/Aries)** Get ready for a very energetic start to the week. Jupiter goes direct, the Moon enters Aries, and Mercury goes direct- all before noon! No major aspects to the Moon today until 7:15PM EST use this time wisely to move ahead with any tasks that may have been on hold during Mercury retrograde. A sextile with Saturn later will be checking in on work accomplished. Today is a good day to take action with your soul tribe towards a desired future.   
+**Tuesday (19/ 26*/ Aries)** Old wounds could arise today that can bring out areas still not in balance. The Moon is building to a T-Square with Pluto, who is in Square with the Sun and Mars that will peak early tomorrow morning (EST) this will help you get on track with what your needs are now, but you may have to face some fears around how to claim it.**  
+Wednesday (20/ 27*/ FM Aries/Taurus)** The Full Moon in Aries (10:57 AM EST) marks the beginning of a new Lunar cycle, and is asking you to face those fears from yesterday and own what is true for you now. Mars is giving the Sun back up support for your desires and any fears should lighten up by the afternoon as the Moon moves into Taurus.   
+**Thursday (21/ 28*/ Taurus)** More caution flags appear today as the Moon squares Saturn in the morning and conjuncts Uranus in the evening. Use today as a catch-up/ clean-up day. What pieces of the old are still hanging around? It may be time to finally remove something from your closet and donate it to your nearest dumpster, it’s time to make space for all that new.**  
+Friday (22/ 29*/ Taurus)** With the sun at 29* Libra you could be tested today on the changes you have made in your relationship to yourself. Moon Square Jupiter, and later a Trine to Pluto are helping you see the big picture of the future. Not everyone shares the same vision, so be aware of your audience if you feel like opening up about it. You could be met with strong resistance, use this as an opportunity to try out that new response system.**  
+Saturday (23/ 0* /Gemini)** The Sun moves into Scorpio today at 12:51 am EST, you are now holding space for new boundaries and inner trust. Moon in first decan of Gemini means your thoughts and feelings about self will be intertwined. A sextile to Chiron late in the evening could help you see a new way of healing an old wound. The Moon also makes a Grand trine in Air with Saturn in Aquarius at 7* (moving to Jupiter at 22* tomorrow) and Mercury in Libra at 12* (moving to Mars 26* tomorrow) making this a good weekend to be social.**  
+Sunday (24/ 1*/ Gemini)** The Sun at 1* suggests you may be either loving your new boundaries or not- today is a good day to filter out and fine tune those new strategies. Mercury is now out of his retrograde shadow so mental functions should feel back to “normal” In the afternoon, a T-Square with Neptune in Pisces at 20* and Venus in Sag at 19* with the Moon in Gemini encourages relaxing and idle socializing. Write your to-do list for tomorrow.**  
+Major Aspect Pattern of the Week:** _The T-Square_  
+Also known as an Achievement Triangle. The bottom of the triangle is formed by an opposition, creating tension that requires action in the direction of the triangle’s apex. This triangle is highly dynamic, and can be, depending on the planets involved, very productive. It is important to note that the T-Square is just one side of a complete square, take a look at what’s on the other side, what house, sign, and any personal planets that may be there for you, these can be used to assist whatever action you may need to take.   
+We have not one, but 2 this week**:  
+Wednesday: Sun Conjunct Mars, Opposite Moon, Pluto Squares**  
+Our first T-Square between Pluto, the Moon and the Sun and Mars conjunction begins Tuesday night, as the moon enters the 3rd decan of Aries and exhausts in the afternoon when the Moon enters Taurus. With Pluto at the apex here, tension between your emotions, and your combined heart and ego drive could push you to a breaking point. Whatever has been left out of balance in your relationship with yourself may appear outwardly, helping us open up to the commitments we have been working on the past two weeks, and make permanent change. On the opposite side of the T-Sqaure is 24* of Cancer, where do you need to support yourself more in the future?  
+Because the Planets involved in this T-Square are in the Cardinal signs of Capricorn, Libra, and Aries, this T-square will bring a strong and focused energy to these areas of your chart.
 
-“Hosier at the sign of the ‘Three Little Chains,’ of Ghent.”
+![](https://lizsalternc.files.wordpress.com/2021/10/tsqaure10-20.png?w=700 =700x700)
 
-The usher recoiled. One might bring one’s self to announce aldermen and
-burgomasters, but a hosier was too much. The cardinal was on thorns. All
-the people were staring and listening. For two days his eminence had been
-exerting his utmost efforts to lick these Flemish bears into shape, and to
-render them a little more presentable to the public, and this freak was
-startling. But Guillaume Rym, with his polished smile, approached the
-usher.
+**Sunday: Moon Opposite Venus, Neptune Squares**  
+Sunday’s T-Sqaure with the Moon will feel significantly different as it involves the softer planets of Neptune and Venus. These Planets are in the Mutable signs of Pisces, Sagittarius, and Gemini and create a more social, carefree nature. The Opposition created by the Moon and Venus at 18* feels full of interesting conversations, bringing in exciting new potential plans, the square to Neptune could lead to some outlandish dreaming.
 
-“Announce Master Jacques Coppenole, clerk of the aldermen of the city of
-Ghent,” he whispered, very low.
+![](https://lizsalternc.files.wordpress.com/2021/10/tsquare10-24.png?w=700 =700x700)
 
-“Usher,” interposed the cardinal, aloud, “announce Master Jacques
-Coppenole, clerk of the aldermen of the illustrious city of Ghent.”
+**Monday October 25-Sunday October 31  
+Sun in Scorpio 2*-8* Moon Moves from Gemini to Virgo  
+**We will be evaluating our boundaries with ourselves this week as we are figuring out what new lines must be drawn. Emotions could run high the first few days with the Moon in Cancer. Some dreamy aspects to Neptune mid-week could bring some procrastination around your decisions to draw new lines. It could also bring some frustrations as there may be a head in the sand attitude for some people. The Sun squares Saturn on Saturday morning, puts the knife to the chopping block. Excitement for the future on Sunday will help us forge ahead next month. **Monday (25/ 2*/ Gemini/Cancer-5pm)** A Grand Trine in Air Today between the Moon, Jupiter and Mars makes today the most productive of the week. Use it wisely. As the rest of the week could go downhill fast. Sun at 2* means we will really be feeling into boundaries that must be adjusted.   
+**Tuesday (26/ 3*/ cancer)**Things could get emotional today with the Moon in Cancer, and Venus Squaring Neptune. Sun at 3* Scorpio suggests you could be taking a hard look at your beliefs about yourself, Moon squaring Chiron means it could bring up an old wound. Moon Sextile Uranus in the evening offers support to see things in a new way, but a Square to Mercury overnight could leave you up thinking about it. Consider where you need to draw the line with old belief patterns.  
+**Wednesday (27/ 4*/ cancer)** Sun at 4* Scorpio means you’ll be feeling out where you belong with your new boundaries and how you trust yourself now. Moon trining Neptune this morning may put you in a dreamy mood during the day, an opposition to Pluto in the evening could bring a hard reality check. **  
+Thursday (28/ 5* Leo)**The Moon moves into Leo in the morning and begins making a T-Square with an Opposition to Saturn and a Square to the Sun. Emotional tension around not feeling heard or respected could lead to an outburst and could be the last straw you need to make changes in any leftover stagnant areas. Tensions will be relieved by the afternoon when Venus sextiles Neptune bringing your dreamy mood from yesterday back. This is a great evening for socializing with friends or getting romantic with your partner.  
+**Friday (29/ 6*/ Leo)**The Sun moves to 6* Scorpio today and we are opening up to trusting ourselves in a new way. Moon squares Uranus could bring a test to how well we can maintain our inner vibe with the boundaries we have in place. People’s buttons could be easily pressed today, so be aware of moodiness. Moon sextiles Mercury in the evening helping to hopefully shake off the week and enjoy some socializing.**  
+Saturday (30/ 7*/ Leo/Virgo-2pm)** The Sun squares Saturn exactly today, testing the strength of those boundaries we’ve been adjusting all week. Mars enters Scorpio a few hours after helping bolster any actions we must take to hold our new line. Moon sextiles Mars in the evening, continuing the social nature of the weekend.  
+**Sunday (31/ 8*/ Virgo)** Hopefully the decisions you have made around maintaining boundaries with yourself have paid off this week. The Moon sextiles the Sun today, bringing a sense of harmony and balance and a trine to Uranus later could bring some excitement for the future.  
+This year isn’t over yet!  
+  
+**Major Aspect Pattern of the Week** _The Achievement Square  
+_This week’s fixed sign T-square is joined by the Sun in Scorpio at 6* as it moves into orb to oppose Uranus retrograde at 13* Taurus, creating the stable and steady achievement square. This is a great day to get tasks accomplished and set your sights on what needs to be done more consistently in the future. The energy here brings motivation to create a secure environment where we can steadily work towards our goals in a balanced manner. Take a look at the 4 houses of the fixed signs in your chart to get an idea of where a new sense of balance may be emerging for you.
 
-This was a mistake. Guillaume Rym alone might have conjured away the
-difficulty, but Coppenole had heard the cardinal.
-
-“No, cross of God?” he exclaimed, in his voice of thunder, “Jacques
-Coppenole, hosier. Do you hear, usher? Nothing more, nothing less. Cross
-of God! hosier; that’s fine enough. Monsieur the Archduke has more than
-once sought his _gant_\* in my hose.”
-
-_*  Got the first idea of a timing._
-
-Laughter and applause burst forth. A jest is always understood in Paris,
-and, consequently, always applauded.
-
-Let us add that Coppenole was of the people, and that the auditors which
-surrounded him were also of the people. Thus the communication between him
-and them had been prompt, electric, and, so to speak, on a level. The
-haughty air of the Flemish hosier, by humiliating the courtiers, had
-touched in all these plebeian souls that latent sentiment of dignity still
-vague and indistinct in the fifteenth century.
-
-This hosier was an equal, who had just held his own before monsieur the
-cardinal. A very sweet reflection to poor fellows habituated to respect
-and obedience towards the underlings of the sergeants of the bailiff of
-Sainte-Geneviève, the cardinal’s train-bearer.
-
-Coppenole proudly saluted his eminence, who returned the salute of the
-all-powerful bourgeois feared by Louis XI. Then, while Guillaume Rym, a
-“sage and malicious man,” as Philippe de Comines puts it, watched them
-both with a smile of raillery and superiority, each sought his place, the
-cardinal quite abashed and troubled, Coppenole tranquil and haughty, and
-thinking, no doubt, that his title of hosier was as good as any other,
-after all, and that Marie of Burgundy, mother to that Marguerite whom
-Coppenole was to-day bestowing in marriage, would have been less afraid of
-the cardinal than of the hosier; for it is not a cardinal who would have
-stirred up a revolt among the men of Ghent against the favorites of the
-daughter of Charles the Bold; it is not a cardinal who could have
-fortified the populace with a word against her tears and prayers, when the
-Maid of Flanders came to supplicate her people in their behalf, even at
-the very foot of the scaffold; while the hosier had only to raise his
-leather elbow, in order to cause to fall your two heads, most illustrious
-seigneurs, Guy d’Hymbercourt and Chancellor Guillaume Hugonet.
+![](https://lizsalternc.files.wordpress.com/2021/10/achievementsquare10-29.png?w=700 =700x700)
