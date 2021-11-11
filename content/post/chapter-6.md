@@ -1,100 +1,24 @@
 ---
-date: 2017-04-14T11:25:05.000-04:00
-description: Esmeralda
-featured_image: "/images/esmeralda.jpg"
+date: 2021-06-01T04:00:00+00:00
+description: ''
+featured_image: "/images/sunmoonupdate.jpg"
 tags: []
-title: 'Chapter VI: Esmeralda'
+title: 'June 2021 Astrology '
 disable_share: false
 
 ---
-We are delighted to be able to inform the reader, that during the whole of
-this scene, Gringoire and his piece had stood firm. His actors, spurred on
-by him, had not ceased to spout his comedy, and he had not ceased to
-listen to it. He had made up his mind about the tumult, and was determined
-to proceed to the end, not giving up the hope of a return of attention on
-the part of the public. This gleam of hope acquired fresh life, when he
-saw Quasimodo, Coppenole, and the deafening escort of the pope of the
-procession of fools quit the hall amid great uproar. The throng rushed
-eagerly after them. “Good,” he said to himself, “there go all the
-mischief-makers.” Unfortunately, all the mischief-makers constituted the
-entire audience. In the twinkling of an eye, the grand hall was empty.
+Monday May 31-Sunday June 6  
+**Sun & Moon Reading Sun in Gemini 10*-16* Moon moves from Aquarius-Taurus**  
+Beginning of the week you are considering how to innovate what you create in the future based on new spiritual beliefs and thinking. Thursday Moon shifts into Aries mid-day creating an afternoon/evening energy surge that may lead to even more new ideas for the next 2 days. Expect to receive some kind of spiritual push this weekend to help solidify your new thinking.
 
-To tell the truth, a few spectators still remained, some scattered, others
-in groups around the pillars, women, old men, or children, who had had
-enough of the uproar and tumult. Some scholars were still perched astride
-of the window-sills, engaged in gazing into the Place.
+Monday June 7- Sunday June 13  
+**Sun & Moon Reading Sun in Gemini 17*-23* Moon moves from Taurus-Cancer**  
+The beginning of the week you are actively making decisions on what you want to create, ultimately building to the New Moon Solar Eclipse happening around 7am EST Thursday morning. This new moon is helping you to internalize this new you that you have been trying on since the full moon lunar eclipse last month (5/26). You will be really feeling out these new mental clothes for the rest of the week with Moon in Cancer, so take not to over stress yourself. There is still time to edit, as mercury is retrograde this month and is not out of shadow until July 1.
 
-“Well,” thought Gringoire, “here are still as many as are required to hear
-the end of my mystery. They are few in number, but it is a choice
-audience, a lettered audience.”
+Monday June 14- Sunday June 20  
+**Sun & Moon Reading Sun in Gemini 24*-29*/Cancer 0* Moon moves from Leo-Scorpio**  
+You are ready to present your new self to the world to see reactions. Be open to receiving any critiques, try not to take things too personally if people are uncertain of your new ways. Keep your new fire burning and see who shows up. You may feel a bit nit-picky with yourself mid-week, once the moon moves into Virgo, resist the urge to make changes based on the responses of others. Work on finding and protecting what balance feels like with your new way of being, it’s not what it used to be.
 
-An instant later, a symphony which had been intended to produce the
-greatest effect on the arrival of the Virgin, was lacking. Gringoire
-perceived that his music had been carried off by the procession of the
-Pope of the Fools. “Skip it,” said he, stoically.
-
-He approached a group of bourgeois, who seemed to him to be discussing his
-piece. This is the fragment of conversation which he caught,—
-
-“You know, Master Cheneteau, the Hôtel de Navarre, which belonged to
-Monsieur de Nemours?”
-
-“Yes, opposite the Chapelle de Braque.”
-
-“Well, the treasury has just let it to Guillaume Alixandre, historian, for
-six hivres, eight sols, parisian, a year.”
-
-“How rents are going up!”
-
-“Come,” said Gringoire to himself, with a sigh, “the others are
-listening.”
-
-“Comrades,” suddenly shouted one of the young scamps from the window, “La
-Esmeralda! La Esmeralda in the Place!”
-
-This word produced a magical effect. Every one who was left in the hall
-flew to the windows, climbing the walls in order to see, and repeating,
-“La Esmeralda! La Esmeralda?” At the same time, a great sound of applause
-was heard from without.
-
-“What’s the meaning of this, of the Esmeralda?” said Gringoire, wringing
-his hands in despair. “Ah, good heavens! it seems to be the turn of the
-windows now.”
-
-He returned towards the marble table, and saw that the representation had
-been interrupted. It was precisely at the instant when Jupiter should have
-appeared with his thunder. But Jupiter was standing motionless at the foot
-of the stage.
-
-“Michel Giborne!” cried the irritated poet, “what are you doing there? Is
-that your part? Come up!”
-
-“Alas!” said Jupiter, “a scholar has just seized the ladder.”
-
-Gringoire looked. It was but too true. All communication between his plot
-and its solution was intercepted.
-
-“The rascal,” he murmured. “And why did he take that ladder?”
-
-“In order to go and see the Esmeralda,” replied Jupiter piteously. “He
-said, ‘Come, here’s a ladder that’s of no use!’ and he took it.”
-
-This was the last blow. Gringoire received it with resignation.
-
-“May the devil fly away with you!” he said to the comedian, “and if I get
-my pay, you shall receive yours.”
-
-Then he beat a retreat, with drooping head, but the last in the field,
-like a general who has fought well.
-
-And as he descended the winding stairs of the courts: “A fine rabble of
-asses and dolts these Parisians!” he muttered between his teeth; “they
-come to hear a mystery and don’t listen to it at all! They are engrossed
-by every one, by Chopin Trouillefou, by the cardinal, by Coppenole, by
-Quasimodo, by the devil! but by Madame the Virgin Mary, not at all. If I
-had known, I’d have given you Virgin Mary; you ninnies! And I! to come to
-see faces and behold only backs! to be a poet, and to reap the success of
-an apothecary! It is true that Homerus begged through the Greek towns, and
-that Naso died in exile among the Muscovites. But may the devil flay me if
-I understand what they mean with their Esmeralda! What is that word, in
-the first place?—‘tis Egyptian!”
+Monday June 21- Sunday June 27  
+**Sun & Moon Reading Sun in Cancer 0*-6* Moon moves from Scorpio -Aquarius**  
+This week is all about protecting that new you inside and being willing to explore the full potential of what it all means. Full Moon on Thursday, in Capricorn, highlights the physical work that may need to be done now that you have mentally established new ground.Spend the rest of the week formulating your plans, writing things down, and innovating your thoughts around work and how you receive money/ self-worth/ feelings of achievement.
